@@ -1,4 +1,1 @@
-# chaithanya-me
-all things me :)
-
-chaithanyak.com
+[All Things Me ](https://chaithanyak.com/)
